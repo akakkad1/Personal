@@ -1,4 +1,4 @@
 # Club Projects
 
-Adit Kakkad
+Adit Kakkad  
 Peachtree Ridge High School '29
